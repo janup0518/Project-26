@@ -1,0 +1,1 @@
+This is a recipe for an omelete. This can be eaten with bread, a sauce, or just plain. This takes about 5 minutes to make, and is pretty simple.
